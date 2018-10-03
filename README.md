@@ -10,6 +10,4 @@ Bhageee
 
 
 
-Ahalya
-Teja
 Dorasani
